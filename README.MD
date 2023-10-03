@@ -5,12 +5,10 @@
 
 <p align='center'><img src="https://i.pinimg.com/564x/81/66/f5/8166f5ff33337a83df084b6ed38d99a3.jpg"
  src= width="300" ></p>
-<p><a href="https://memepedia.ru/a-chto-sluchilos/">Не нажимай меня</p>
 
  ----- 
 
 ## Инструменты для работы программы
-
 ### VISUAL STUDIO
 
 * группа: 21ис-5 
