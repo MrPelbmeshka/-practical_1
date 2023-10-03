@@ -3,7 +3,7 @@
 
 -----
 
-<p align='center'><img src="https://primamediamts.servicecdn.ru/f/big/2556/2555502.jpg?1e2369c433981f1dedf0cb20f278d402"
+<p align='center'><img src="https://medialeaks.ru/wp-content/uploads/2020/08/annotacziya-2020-08-10-142027.jpg"
  src= width="300" ></p>
 <p><a href="https://memepedia.ru/a-chto-sluchilos/">Не нажимай меня</p>
 
